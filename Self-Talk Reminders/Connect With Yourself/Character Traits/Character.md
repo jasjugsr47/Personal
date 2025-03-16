@@ -1,0 +1,1 @@
+You need to be composed in what you give value to, where you channel your energy, what you choose to reject and have [[Clarity]] upon that.

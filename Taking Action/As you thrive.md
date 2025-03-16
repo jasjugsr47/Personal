@@ -1,0 +1,1 @@
+As you thrive and keep going with the [[HyperDiscipline]] and [[HyperFocus]] on the stages of the goal, it will eventually become your routine and then your reality. Then, [[Exponentiate your learning]] will be achieved. The positivity builds up exponentially.

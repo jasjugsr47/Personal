@@ -1,0 +1,1 @@
+Showing desire after the definition of the accuracy of a goal. Implement alongside the [[Solution-Driven]], [[Problem Solving]] approach.

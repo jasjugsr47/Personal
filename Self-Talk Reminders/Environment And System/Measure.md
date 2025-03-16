@@ -1,0 +1,1 @@
+You can only improve what you can measure. Give scientific metrics to your current state, and seek to improve your every metric.

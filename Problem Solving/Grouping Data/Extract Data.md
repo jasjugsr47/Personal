@@ -1,0 +1,1 @@
+Extract data and package them together as independent and dependent variables to find relationships between them from a particular analysis of a scenario.

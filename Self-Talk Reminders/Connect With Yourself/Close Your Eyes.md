@@ -1,0 +1,1 @@
+Close your eyes at regular instants and build up [[Intentions]] for your next task.

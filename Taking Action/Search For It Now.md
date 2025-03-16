@@ -1,0 +1,1 @@
+You're [[Solution-Driven]]. Everything you need which adds up coherently to your next task in the fulfillment of an objective is available and is at your disposal. Just search for it now. If you can do it now, do it now. Be [[Water]]. Have [[Clarity]] or seek it at every stage/ level.

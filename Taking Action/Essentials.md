@@ -1,0 +1,1 @@
+Devise a plan of the essentials.

@@ -1,0 +1,1 @@
+Say Hi and be an initiator. Find solutions: links, things that impress you about others.

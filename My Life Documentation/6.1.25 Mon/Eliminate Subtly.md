@@ -1,0 +1,1 @@
+Be ruthless in overturning state of minds, destructive decisions, bias, feelings, inclinations

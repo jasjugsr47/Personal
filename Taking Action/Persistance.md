@@ -1,0 +1,1 @@
+Persist through. pierce through, push through, find solutions. 

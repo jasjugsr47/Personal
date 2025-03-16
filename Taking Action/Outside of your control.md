@@ -1,0 +1,2 @@
+Minimise the effect of what is outside your control by bringing to control your now and by executing a scientifically devised plan (with rationale) for upcoming tasks. Be explosive
+No mercy, no retreat, no excuse, no resistance.

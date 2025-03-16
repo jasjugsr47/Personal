@@ -1,0 +1,1 @@
+Not eliminating destructive choices. You always have innumerable choices for becoming better, never embrace a fixed mindset.

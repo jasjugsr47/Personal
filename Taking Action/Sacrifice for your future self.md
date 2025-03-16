@@ -1,0 +1,1 @@
+Ask your future self what sacrifice would you make now.

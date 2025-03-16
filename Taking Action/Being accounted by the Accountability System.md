@@ -1,0 +1,1 @@
+At the end of the day, you need to assess your day, and make you are better today than yesterday.

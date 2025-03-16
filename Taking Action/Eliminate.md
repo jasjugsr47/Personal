@@ -1,0 +1,1 @@
+Eliminate, defeat distractions which seem attractive, but doesn't add value to your now, doesn't push you further, doesn't contribute to your [[Lifelong Learning]]. 

@@ -1,0 +1,1 @@
+Smash through, seek help, focus on the work to be done even if your life seems threatened. 

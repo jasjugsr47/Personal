@@ -1,0 +1,1 @@
+Believe in the potential and manifestation of small calculated structured actions.

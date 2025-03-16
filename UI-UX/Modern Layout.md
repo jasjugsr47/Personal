@@ -1,0 +1,5 @@
+- **Glassmorphism**: Frosted-glass effects with semi-transparent backgrounds.
+- **Neumorphism**: Soft, 3D-like UI elements blending with the background.
+- **Asymmetrical Layouts**: Breaking traditional grid systems for a more dynamic look.
+- **Split-Screen Designs**: Dividing the screen into two interactive sections.
+- **Dynamic Grids**: Auto-rearranging grids (Masonry layouts) for varying content sizes.

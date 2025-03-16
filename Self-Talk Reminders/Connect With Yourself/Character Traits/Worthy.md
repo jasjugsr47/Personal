@@ -1,0 +1,1 @@
+Make your life worthy to be celebrated. Worthy to be praised. Worthy to seek more mindfully.

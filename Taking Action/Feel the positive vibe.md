@@ -1,0 +1,1 @@
+Take it out, laugh, vibe, smile, apply your metahuman model and feel a [[Positivist]].,

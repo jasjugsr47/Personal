@@ -1,0 +1,1 @@
+Bold, Ambitious, Visionary, Unstoppable, Daring

@@ -1,0 +1,1 @@
+Build up intentions through a burst of energy radiation.

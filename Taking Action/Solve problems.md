@@ -1,0 +1,1 @@
+That is basically this. Solution finding in every light situation you have defined to not be proactive/productive. Upend the reality immediately, and solve it NOW.

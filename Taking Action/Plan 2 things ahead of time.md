@@ -1,0 +1,1 @@
+Abide by the plan, and be 100% invested alongside [[Fill it up]].

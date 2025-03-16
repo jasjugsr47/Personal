@@ -1,0 +1,1 @@
+Create movies to bring a positive change to Society. Stoicism, Rationalism, Education

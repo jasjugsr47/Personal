@@ -1,0 +1,1 @@
+Take responsibility for your actions, mistakes, and seek to learn from those, and improve next time. Seek to not do it again. 

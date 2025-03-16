@@ -1,0 +1,1 @@
+Statements instead of questions

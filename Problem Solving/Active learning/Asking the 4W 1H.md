@@ -1,0 +1,1 @@
+Ask the basic questions, and ensure organization while the basic questions are answered clearly and without debate in scientific writing. If there is debate, seek to achieve no debate.

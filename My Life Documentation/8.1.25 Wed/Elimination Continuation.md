@@ -1,0 +1,1 @@
+Eliminate Fantasy, get the actual work done. Done means 100%, feel the drive, feel the momentum building. 

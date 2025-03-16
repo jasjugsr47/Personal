@@ -1,0 +1,1 @@
+Different resources for UI

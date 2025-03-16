@@ -1,0 +1,1 @@
+Smile, make it fun, while being 100% straight and invested into something, and having a view to transition to better situations on the long term. 

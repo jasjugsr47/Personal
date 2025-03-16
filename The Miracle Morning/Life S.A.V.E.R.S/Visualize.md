@@ -1,0 +1,1 @@
+Visualize, visualize tasks, risks, opportunities being taken, outcome, yourself completing your aims, how it would feel 

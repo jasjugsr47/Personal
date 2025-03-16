@@ -1,0 +1,1 @@
+What other definitions does an object satisfy first before defining itself.

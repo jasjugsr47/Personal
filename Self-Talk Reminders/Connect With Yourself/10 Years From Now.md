@@ -1,0 +1,1 @@
+Use [[Simulation]] and [[Visualization]] to think of yourself 10 years from now, and make that vision dependent on what you have the [[Choice]] to do now.

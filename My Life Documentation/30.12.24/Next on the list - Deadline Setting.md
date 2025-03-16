@@ -1,0 +1,1 @@
+Apply [[Parkinson's law]] in parallel. And, Be [[Water]]. Fuse [[Extraordinary Effort]] as well.

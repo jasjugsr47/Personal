@@ -1,0 +1,1 @@
+Be wary of the resources surrounding your environment. And be a [[Maximalist]] to make use of those while being a [[Minimalist]].

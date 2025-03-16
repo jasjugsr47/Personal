@@ -1,0 +1,1 @@
+Note to Obsidian and document your life.

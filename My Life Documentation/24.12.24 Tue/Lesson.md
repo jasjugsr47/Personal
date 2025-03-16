@@ -1,0 +1,1 @@
+You got a lesson today to eat the frog, to do it now, to overcome what is holding you back, yourself. You are your own downfall.

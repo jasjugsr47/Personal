@@ -1,0 +1,1 @@
+Embrace [[Scientific Behavior]] in your plan creation for achieving a mini-result, devise the stages using referencing and configuration to what is already established.

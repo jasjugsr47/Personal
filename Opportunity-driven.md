@@ -1,0 +1,1 @@
+You find the slightest of opportunity in the simplest of stuffs.

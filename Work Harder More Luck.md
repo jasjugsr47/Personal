@@ -1,0 +1,1 @@
+As you near a goal, you will surround yourself with more elements associated to that goal, and these will compound. Luck is a social bias, what is actually essential is the scientific work towards a well defined goal.

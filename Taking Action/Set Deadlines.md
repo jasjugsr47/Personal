@@ -1,0 +1,1 @@
+Define with [[Clarity]] the deadline of a task, and be 100% strict about it.

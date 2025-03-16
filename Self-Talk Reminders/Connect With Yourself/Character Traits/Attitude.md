@@ -1,0 +1,1 @@
+100% investment towards defined progress checkpoints.

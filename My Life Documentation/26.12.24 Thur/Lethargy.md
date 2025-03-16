@@ -1,0 +1,1 @@
+You need to overcome resistance. Embrace [[Clarity]].

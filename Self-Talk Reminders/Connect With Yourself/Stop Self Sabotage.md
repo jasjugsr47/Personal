@@ -1,0 +1,3 @@
+Stop letting yourself controlled by wordly desires, hereby applying the [[Stoic]] identity. Focus on the work to be done referenced from [[Produce]], and converge towards organization and building your environment and [[System]] to become unstoppable. Keep seeking solutions referenced from [[Solution-Driven]] principle. Keep identifying problems and devise solutions with [[Dynamicity]].
+
+Connect with your [[Identity Structure]] and save yourself from destruction.

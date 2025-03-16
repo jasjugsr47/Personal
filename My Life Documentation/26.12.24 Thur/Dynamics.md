@@ -1,0 +1,1 @@
+You search for what you need now if you need something. You don't wait.

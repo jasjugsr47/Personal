@@ -1,0 +1,1 @@
+Gather more connections even with diverging interests.
